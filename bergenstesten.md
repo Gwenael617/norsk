@@ -30,6 +30,7 @@ https://bergenstesttips.wordpress.com/
 
 http://www.skapago.eu/en/language/courses-and-prices/norwegian/norskprove.html  
 http://www.vox.no/norskprove/ (official)  
+
 	date : 
 	12.–21.10.2016 	Oppmelding til prøve (vinter)  
 	28.11.–8.12.2016 	Prøvegjennomføring  
