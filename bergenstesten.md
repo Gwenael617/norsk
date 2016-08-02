@@ -19,23 +19,23 @@ https://rosenhof.oslovo.no/fagtilbud/vurdering/bergenstesten/
 
 Examples to buy : https://webspeed.fu.no/scripts/cgiip.wsc/wwwnb/prodvalg.html?m=hn
 
-https://www.youtube.com/watch?v=SV6F1HvBEfI
+https://www.youtube.com/watch?v=SV6F1HvBEfI  
 https://www.youtube.com/user/TheNorwegianSchool/videos (includes listening comprehension different levels)
 
-http://www.norwegian-classes.com/bergenstesten-self-study-courses/
-http://www.skapago.eu/en/language/courses-and-prices/norwegian/bergenstesten.html
-book : http://www.norwegian-classes.com/her-pa-berget/
-https://www.haugenbok.no/Her-paa-berget/I9788202472580
-https://bergenstesttips.wordpress.com/
+http://www.norwegian-classes.com/bergenstesten-self-study-courses/  
+http://www.skapago.eu/en/language/courses-and-prices/norwegian/bergenstesten.html  
+book : http://www.norwegian-classes.com/her-pa-berget/  
+https://www.haugenbok.no/Her-paa-berget/I9788202472580  
+https://bergenstesttips.wordpress.com/  
 
-http://www.skapago.eu/en/language/courses-and-prices/norwegian/norskprove.html
-http://www.vox.no/norskprove/ (official)
-	date :
-	12.–21.10.2016 	Oppmelding til prøve (vinter)
-	28.11.–8.12.2016 	Prøvegjennomføring
-	30.3.–7.4.2017 	Oppmelding til prøve (sommer)
-	22.5.–7.6.2017 	Prøvegjennomføring
+http://www.skapago.eu/en/language/courses-and-prices/norwegian/norskprove.html  
+http://www.vox.no/norskprove/ (official)  
+	date : 
+	12.–21.10.2016 	Oppmelding til prøve (vinter)  
+	28.11.–8.12.2016 	Prøvegjennomføring  
+	30.3.–7.4.2017 	Oppmelding til prøve (sommer)  
+	22.5.–7.6.2017 	Prøvegjennomføring  
  
 
-http://norsk.rkevin.com/updated-information-to-the-official-norwegian-tests/
-https://adaptit.enovate.no/latest/Norskniva
+http://norsk.rkevin.com/updated-information-to-the-official-norwegian-tests/  
+https://adaptit.enovate.no/latest/Norskniva  
